@@ -1,1 +1,0 @@
-# Lapadat_DSPN_S22
